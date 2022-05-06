@@ -1,3 +1,3 @@
-# I told you dont't read me.
+# I told you don't read me.
 
-** You have to forget what you saw, PROMISE !!**
+**You have to forget what you saw, PROMISE !!**
